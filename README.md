@@ -1,0 +1,2 @@
+# Hosting
+Atarashi HQ Hosting
