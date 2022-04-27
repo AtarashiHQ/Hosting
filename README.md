@@ -6,7 +6,7 @@ By choosing us, you will always be sure that we have:
 - Low prices for hosting and electricity;
 - 24/7 equipment monitoring and timely maintenance, 24/7 support;
 - 100% equipment safety;
-- Flexible hosting plans;
+- Flexible hosting plans.
 You will become a favorite customer of a professional team that is proud of its reputation and values you.
 
 ## [Atarashi HQ Hosting](https://atarashihq.com/hosting/)
